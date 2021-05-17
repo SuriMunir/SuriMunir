@@ -1,0 +1,1 @@
+Hi my name is Munir Suri. I am a 50 years old and decided to explore the world of coding by self teaching myself from udemy and you tube tutorial videos. I do this more as a hobby for now but with a clear objective of building something on my own someday. I can be reached on email ID munir.suri@divishiconsulting.com
